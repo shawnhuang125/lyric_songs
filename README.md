@@ -51,24 +51,44 @@
 
 ---
 
-I can't love you in the dark
-It feels like we're oceans apart
-There is so much space between us
-Maybe we're already defeated
-Ah-yeah-yeah-yeah-yeah-yeah-yeah everything changing
+- I can't love you in the dark
+- 我真的沒辦法偷偷愛你了
+- It feels like we're oceans apart
+- 我們之間就像隔著千山萬水一樣
+- There is so much space between us
+- 我們之間已經生疏了
+- Maybe we're already defeated
+- 我們已經結束了
+- Ah-yeah-yeah-yeah-yeah-yeah-yeah everything changing
+- 欸.......一切都變了
 
-We're not the only ones
-I don't regret a thing
-Every word I've said
-You know I'll always mean
-It is the world to mean
-That you are in my life
-But I want to live
-And not just survive
+---
 
-That's why I can't love you in the dark
-It feels like we're oceans apart
-There is so much space between us
-Maybe we're already defeated
-Ah-yeah-yeah-yeah-yeah-yeah-yeah everything changed me
-I-I-I-I-I don't think you can save me
+- We're not the only ones
+- 世上並不是只有我們這樣
+- I don't regret a thing
+- 但我一點也不後悔
+- Every word I've said
+- 我對你說的每一個字
+- You know I'll always mean
+- 你知道的我其實很壞
+- It is the world to mean
+- 這對我來說意義非凡
+- That you are in my life
+- 你在我的生命裡
+- But I want to live
+- 但我想要真正的活著
+- And not just survive
+- 而不是苟活
+- That's why I can't love you in the dark
+- 這是為什麼我沒辦法再偷偷愛你了
+- It feels like we're oceans apart
+- 我們之間隔著千山萬水
+- There is so much space between us
+- 我們之間早已生疏
+- Maybe we're already defeated
+- 我們早就結束了
+- Ah-yeah-yeah-yeah-yeah-yeah-yeah everything changed me
+- 欸......我到最後還是變了
+- I-I-I-I-I don't think you can save me
+- 我不認為你可以拯救我
