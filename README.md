@@ -5,7 +5,7 @@
 - I'm far too ashamed to do it with you watching me
 - 當你看著我的時候，我真的覺得我好像是壞人
 - This is never ending, we have been here before
-- 我們已經走到這裡無數次了，根本永遠沒有盡頭
+- 我們已經走到這裡無數次了，根本不會有結果
 - But I can't stay this time cause I don't love you anymore
 - 這次不能再順你的意了因為我不愛你了
 
